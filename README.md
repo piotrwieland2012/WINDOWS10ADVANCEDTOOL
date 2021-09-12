@@ -1,0 +1,2 @@
+# WINDOWS10ADVANCEDTOOL
+Hidden Setting MS windows 10
